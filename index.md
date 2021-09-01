@@ -62,4 +62,3 @@ This policy is effective as of 2021-09-01
 
 If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at nguyenven992@gmail.com.
 
-1
